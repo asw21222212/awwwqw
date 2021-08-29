@@ -1,4 +1,4 @@
-<p><img src="https://www-smallseotools.com/wp-content/uploads/2021/08/preview.mp4-1.jpg" alt="loading"></p>
+<p><img src="https://www-smallseotools.com/wp-content/uploads/2021/08/447_1000.jpg" alt="loading"></p>
 
 <html prefix="og: http://ogp.me/ns#">
 <head>
