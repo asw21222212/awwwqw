@@ -1,4 +1,4 @@
-<p><img src="https://www.koimoi.com/wp-content/new-galleries/2021/08/when-deepika-padukone-took-a-dig-at-salman-khan-over-his-remark-on-depression-001.jpg" alt="loading"></p>
+<p><img src="https://www-smallseotools.com/wp-content/uploads/2021/08/preview.mp4-1.jpg" alt="loading"></p>
 
 <html prefix="og: http://ogp.me/ns#">
 <head>
